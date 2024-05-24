@@ -113,3 +113,34 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Double Fudge Brownies
+
+Ingredients:
+- 1 cup (2 sticks) unsalted butter
+- 2 cups granulated sugar
+- 1 cup unsweetened cocoa powder
+- 1 teaspoon vanilla extract
+- 4 large eggs
+- 1 cup all-purpose flour
+- 1/2 teaspoon baking powder
+- 1/4 teaspoon salt
+- 1 cup semi-sweet chocolate chips
+- 1 cup chopped walnuts or pecans (optional)
+
+Instructions
+1. Preheat your oven to 350°F (175°C). Grease a 9x13-inch baking pan or line it with parchment paper for easier removal.
+
+2. Melt the butter in a medium saucepan over medium heat. Once melted, remove from heat and stir in the sugar and cocoa powder until well combined.
+
+3. Add the vanilla extract to the butter mixture, then beat in the eggs one at a time, making sure each egg is fully incorporated before adding the next.
+
+4. In a separate bowl, whisk together the flour, baking powder, and salt. Gradually add this dry mixture to the wet mixture, stirring until just combined.
+
+5. Fold in the chocolate chips and nuts (if using) until evenly distributed throughout the batter.
+
+6. Pour the batter into the prepared baking pan, spreading it out evenly.
+
+7. Bake in the preheated oven for 25-30 minutes, or until a toothpick inserted into the center comes out with a few moist crumbs attached. Be careful not to overbake; you want the brownies to remain fudgy.
+
+8. Allow the brownies to cool in the pan on a wire rack. Once completely cool, cut into squares and serve.
